@@ -10,5 +10,7 @@ Kalau seperti ini memahami agama, mau dibawa ke mana umat ini?! Padahal hadits t
 
 Para ulama terpercaya dari kalangan Ahli Hadits dan Ahli Fiqh membenarkan Talqin.![](/assets/Selection_350.png)Syekh Abu ‘Amr bin ash-Sholah ditanya tentang talqin, ia menjawab: “Talqin yang kami pilih dan yang kami amalkan, telah diriwayatkan kepada kami satu hadits dari hadits Abu Umamah, sanadnya tidak tegak/tidak kuat. Akan tetapi didukung hadits-hadits lain yang semakna dengannya dan dengan amalan penduduk negeri Syam sejak zaman dahulu 3 .
 
-![](/assets/Selection_351.png)
+![](/assets/Selection_351.png)![](/assets/Selection_352.png)Ibnu al-‘Arabi berkata dalam kitab al-Masalik: “Apabila mayat dimasukkan ke dalam kubur, dianjurkan agar di-talqin-kan pada saat itu. Ini adalah perbuatan penduduk Madinah dan orang- orang shaleh pilihan, karena sesuai dengan firman Allah Swt: “Dan tetaplah memberi peringatan, karena Sesungguhnya peringatan itu bermanfaat bagi orang-orang yang beriman”. \(Qs. adz-Dzariyat \[51\]: 55\). Seorang hamba sangat butuh untuk diingatkan kepada Allah ketika ditanya malaikat 5 .
+
+![](/assets/Selection_353.png)![](/assets/Selection_354.png)
 
